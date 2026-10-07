@@ -1,2 +1,2 @@
-Amory Hanson 👋
+# Amory Hanson 👋
 Welcome to my profile
